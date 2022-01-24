@@ -1,0 +1,2 @@
+- 👋 Hi, I’m @Jschmidt01110101
+- 👀 I’m interested in ... anything development
